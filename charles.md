@@ -1,0 +1,1 @@
+"The only thing that ever sat its way to success was a hen." — Sarah Brown
