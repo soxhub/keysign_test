@@ -1,1 +1,1 @@
-"The time you enjoy wasting was not wasted" – John Lennon
+"The time you enjoy wasting, was not wasted" – John Lennon
